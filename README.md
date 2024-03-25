@@ -10,3 +10,10 @@
 ## Quite good
 - Dai Dark
 - Dungeon Odyssey
+
+# Not manga
+- Mother, Come Home
+- An Enemy of the People
+- The mercenary
+- The Eternaut
+- Metabarons saga (the last ones suck tho, especially the 3D rendered ones)
