@@ -1,26 +1,24 @@
 # Manga Recs
 
 ## Top
-- Mother, Come Home
-- Universe!
-- Tales of Telguuth
+- Mother, Come Home*
+- Universe!*
+- Tales of Telguuth*
 
 ## Really good
 - Shokuryou Jinrui
-- The Eternaut
+- The Eternaut*
 - Usuzumi no Hate
 - Sousou no Frieren
 - Blue Period
 - Welcome to the N.H.K. (anime)
+- The mercenary*
 
 ## Quite good
-- An Enemy of the People
+- An Enemy of the People*
 - Dai Dark
 - Dungeon Odyssey
+- Metabarons saga* (the last ones suck tho, especially the 3D rendered ones)
 
-# Not manga
-- Mother, Come Home
-- An Enemy of the People
-- The mercenary
-- The Eternaut
-- Metabarons saga (the last ones suck tho, especially the 3D rendered ones)
+
+* not manga
