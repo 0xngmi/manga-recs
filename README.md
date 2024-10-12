@@ -20,5 +20,6 @@
 - Dungeon Odyssey
 - Metabarons saga* (the last ones suck tho, especially the 3D rendered ones)
 
+--- 
 
-* not manga
+\* not manga
